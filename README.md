@@ -1,1 +1,1 @@
-# freddowo.github.io
+# freddyowo.github.io
